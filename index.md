@@ -1,4 +1,0 @@
-## Chris Leung
-
-Welcome
-
